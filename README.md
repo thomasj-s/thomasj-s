@@ -10,4 +10,4 @@ I am currently looking for entry level employment while continuing to learn and 
 
 
 
-Feel free to contact me here, on linkdin @ , and facebook @
+Feel free to contact me either here, on linkdin @https://www.linkedin.com/in/thomasj-s/
